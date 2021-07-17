@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Godson0118991080
 - 👀 I’m interested in Business profit making
 - 🌱 I’m currently learning how to mine bitcoin
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on exportation and crypto mining 
 - 📫 How to reach me through my email
 
 <!---
